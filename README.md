@@ -1,7 +1,7 @@
--  hiIi1I!! I’m marshall :3 but u can call me vampy or blue!!
+-  hiIi1I!! I’m marshall :3 but u can call me xyn, corpse, or blue!!
 - i luv inting with ppl im just a wee bit nervous interacting with ppl
 - im in alot of fandoms js ask!
-- 
+- check out my strawpage >O<
 
 
 <!---
